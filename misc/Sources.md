@@ -1,2 +1,3 @@
 - [https://xeiaso.net/blog](https://xeiaso.net/blog)
 - [https://dpc.pw](https://dpc.pw)
+- [https://lucasfcosta.com/](https://lucasfcosta.com/)

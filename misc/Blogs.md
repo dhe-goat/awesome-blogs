@@ -1,0 +1,1 @@
+- [Distorting scrum](https://lucasfcosta.com/2022/10/04/distorting-scrum.html)
